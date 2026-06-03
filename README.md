@@ -1,16 +1,16 @@
-## Hi there 👋
+# Christian Garçia Moïse — MrChritian 🇭🇹
 
-<!--
-**mrchritian/mrchritian** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Forex Trader | Content Creator | Entrepreneur
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 Building my personal brand as **MrChritian**
+- 📈 Trading Forex with SMC/ICT methodology (EUR/USD, XAU/USD)
+- 🎯 Target: FundedNext prop firm
+- 🏀 Semi-pro basketball player (Point Guard)
+- 🌍 Based in Gonaïves, Haiti
+- ✝️ God First
+- 💡 Building an independent life & legacy from scratch
+- 📲 Instagram: @mrchritian00
+- 🎵 TikTok: @mrchritian
+- 🔗 https://hoo.be/mrchritian
