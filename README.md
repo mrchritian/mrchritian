@@ -1,16 +1,22 @@
-# Christian Garçia Moïse — MrChritian 🇭🇹
+# Christian Moïse know as MrChritian 
 
-Forex Trader | Content Creator | Entrepreneur
+Forex Trader HT | Web developer | Entrepreneur
 
 ---
 
 - 🔭 Building my personal brand as **MrChritian**
-- 📈 Trading Forex with SMC/ICT methodology (EUR/USD, XAU/USD)
-- 🎯 Target: FundedNext prop firm
-- 🏀 Semi-pro basketball player (Point Guard)
+- 📈 Trading Forex with SMC/ICT methodology 
+- 🎯 Target: FundedNext prop firm and Ftmo
 - 🌍 Based in Gonaïves, Haiti
-- ✝️ God First
-- 💡 Building an independent life & legacy from scratch
+- ✝️ Child of God
+- 💡Building an independent life & legacy from scratch
+
+**Social networking**
+
 - 📲 Instagram: @mrchritian00
+- 📲 linkedln: https://www.linkedin.com/in/christian-moïse
 - 🎵 TikTok: @mrchritian
 - 🔗 https://hoo.be/mrchritian
+- 🔗 https://linktr.ee/MrChritian
+- 🔗 https://beacons.ai/mrchritian
+- 🔗 https://t.me/mrchritianfx
